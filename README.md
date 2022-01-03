@@ -1,1 +1,2 @@
 Shane Markwardt
+markwami@oregonstate.edu
